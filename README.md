@@ -1,6 +1,9 @@
-⊙(⁠^⁠～⁠^⁠;⁠)⁠ゞ
-Ranly at your service! mostly multifandom 
-KIN! my kinsona is chance
-taken by mafioso
-iwc but me lwk chill
-hvycomf, c+h enc!! unless me w my darling 
+ʀᴀɴʟʏ2777
+ᴛᴀᴋᴇɴ 
+ᴄ+ʜ ᴇɴᴄ!! ʜᴠʏᴄᴏᴍꜰ
+ᴜɴʟᴇꜱꜱ ɪᴍ ᴡ ᴍʏ ᴍᴀꜰɪ
+ɪʟʏꜱᴍ ᴅᴀʀʟɪɴɢ
+ᴋɪɴꜱᴏɴᴀ? ᴄʜᴀɴᴄᴇ.
+ᴀʟᴡᴀʏꜱ ɪɴ ꜰᴏʀꜱᴀᴋᴇɴ ᴀʀᴇᴀ. ᴏʀ ʜɪᴅɪɴɢ. 
+ɪɴᴛ ꜰʀᴇᴇʟʏ. ɪᴍ ɴᴏᴛ ʙɪᴛᴇ ᴀʀꜰ
+ᴍᴜʟᴛɪꜰᴀɴᴅᴏᴍ. ɪᴡᴄ ʙᴜᴛ ɪᴍ ʟᴡᴋ ᴄʜɪʟʟ. ʙᴏᴛʜᴇʀᴇᴅ? ʙʟᴏᴄᴋ.
