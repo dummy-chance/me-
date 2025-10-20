@@ -1,0 +1,37 @@
+𝜗𝜚˚⋆EVERYTHING U NEED TO KNOW BEFORE INT
+ֶָ֢⊹𐙚ᴀᴅᴅʀᴇss ᴍᴇ ᴀs ʀᴀɴ/ʟʏɴ/ʀʏɴ⭑.ᐟ
+ɪᴍ 18 ʏᴇᴀʀs ᴏʟᴅ୭ ˚. ᵎᵎ
+ᴊᴜsᴛ ʙᴇᴄᴀᴜsᴇ ɪᴍ ʟᴇɢᴀʟ ᴅᴏᴇsɴᴛ ᴍᴇᴀɴ ʏᴏᴜ ᴄᴀɴ ᴄʀᴏssᴇᴅ ʙᴏᴜɴᴅᴀʀɪᴇs!
+i disabled my friend request, not interested to make friends... i used offline mode because i dont wnna get approached first. and every friends of mine thought i ghosted them:\ . i feel uncomfortable so i turned it off.. i just dont want you all to think i ghosted yall. so no friend request.
+INT FREELY, ɪ ᴍᴇᴀɴ ɴᴏᴛ ɪғ sʜɪᴘ ɪ sᴛʀɪᴄᴛʟʏ ᴅɴɪ
+DNI:PROSHIPPER, MEAN PPL, FANATIC, RASIST, ᴛʀᴀɴsᴘʜᴏʙɪᴄ, ᴘᴘʟ ᴡ ʙɪɢ ᴇɢᴏ, ᴘᴘʟ ᴛʜᴀᴛ ᴍᴀᴋᴇs ғᴜɴ ᴡ ɪɴsᴇᴄᴜʀɪᴛɪᴇs, ғᴏʀᴄᴇᴅ ʏᴏᴜʀ sʜɪᴘ ᴛᴏ ᴇᴠᴇʀʏᴏɴᴇ, sa joke, gr4pe joke, especially HOMOPHOBIC.
+STRICTLY DNI:
+SHOPDEBT,PIZZADEBT,FROZENDEBT,ICHANCE,
+SHADOWELDER,SHADOWSUGAR,SCARAMONA,
+SCARADURIN,SCARABEDO.ᐟ.ᐟ
+ᴀʜ ᴅɪsᴄʟᴀɪᴍᴇʀ ᴛʜᴇ sʜɪᴘ ɪ sᴛʀɪᴄᴛʟʏ ᴅɴɪ ᴀʀᴇ ɴᴏᴛ ᴍʏ ʟɪᴋɪɴɢ! ɪ sᴛɪʟʟ ᴀᴄᴄᴇᴘᴛ ᴛᴏ ɪɴᴛ ᴡ ɪᴛ! ʙᴜᴛ ᴅᴏɴᴛ ᴇxᴘᴇᴄᴛ ᴍᴇ ᴛᴏ ʀᴘ ᴀs sʜɪᴘ ɪ sᴛʀɪᴄᴛʟʏ ᴅɴɪ ᴏᴋᴀʏ!
+
+MULTIFANDOM! MULTISHIPPER! ˗ˏˋ ★ ˎˊ˗
+sʏs. ɪm ᴘʀᴏʙʟᴇᴍᴀᴛɪᴄ, ʙᴜᴛ ᴅᴏɴᴛ ʙᴇ ᴀғʀᴀɪᴅ ᴛᴏ ᴛᴇʟʟ ᴍᴇ ɪғ ɪ ᴍɪɢʜᴛ ʙᴇ ʙᴏᴛʜᴇʀᴇᴅ ʏᴀʟʟ, ɪʟʟ ᴍᴀᴋᴇ sᴜʀᴇ ᴍʏ ᴘʀᴇsᴇɴᴄᴇ ᴡᴏɴᴛ ʙᴇ ɪʀʀɪᴛᴀᴛɪɴɢ ᴛᴏ ᴘᴘʟ! ᴀʜ ᴅᴏɴᴛ ᴡᴀɴɴᴀ ᴛᴇʟʟ ᴍᴇ? ᴊᴜsᴛ ʜɪᴅᴇ!!
+ 𐀪𐀪ᡣ𐭩𖹭
+MOREᯓ  ✈︎
+➤ ɪ ʜᴀᴠᴇ ᴏɴʟɪɴᴇ ғᴀᴍɪʟʏ ᴏɴ ᴘᴛ ೀ
+➤ ɪ ʟɪᴋᴇ sᴘɪᴄʏ ғᴏᴏᴅ, ᴇsᴘᴇᴄɪᴀʟʟʏ sᴇᴀғᴏᴏᴅ
+➤ ɪ ᴘʟᴀʏ ᴍᴏsᴛʟʏ ɴᴏᴡ ᴀʀᴇ ᴄʀᴋ, ʀᴏʙʟᴏx,
+ᴍɪɴᴇᴄʀᴀғᴛ
+➤ ʏᴏᴜ ᴄᴀɴ sᴘᴏᴛ ᴍᴇ ɴᴇᴀʀ ʙᴀᴋᴇʀʏ, ᴏʀ ɴᴇᴀʀ ɢᴇɴsʜɪɴ ᴀʀᴇᴀ𑁤
+➤ ᴘᴀɴsᴇxᴜᴀʟ, ᴛᴀᴋᴇɴ. ☁︎
+➤ ɴʏᴘʀᴏɴᴏᴜɴs, ᴍᴏsᴛʟʏ ɴᴏᴡ ᴀʀᴇ sʜᴇ/ᴛʜᴇʏ/ᴛʜᴇᴍ!
+➤ KINSONA: CHANCE,KAZUHA,AETHER,PURE VANILLA,AZURE,MUZAN,TODOROKI,EMUNOTORI, MIZUKI, MIZU,TETOM
+ᴀᴅʜᴅ. sʏs
+DONT COPY MY STYLE
+DONT.INSPO
+DONT.EVEN.TRY.TO.COPY
+♬⋆.˚
+ᝰ.ᐟ
+ᴀʜ ʏᴇs, ALWAYS IWEC ɪғ ɪᴍ ᴡ ᴍʏ ғʀɪᴇɴᴅs!
+ᴇsᴘᴇᴄɪᴀʟʟʏ ᴍʏ ᴋᴜɴɪ/ᴍᴀғɪ/elli𐔌՞..՞𐦯 ᴅᴏɴᴛ ᴡᴏʀʀʏ sʜᴇ ᴊᴜsᴛ sʜʏ ᴏʀ ᴍᴏsᴛʟʏ ᴄᴀɴᴛ ɪɴᴛ ᴍᴜᴄʜ ᴄᴜᴢ sʜᴇ ᴍɪɢʜᴛ ʜᴀᴠᴇ ᴛʀᴏᴜʙʟᴇ ᴛᴏ ᴋᴇᴇᴘ ᴜᴘ ᴄᴏɴᴠᴇʀsᴀᴛɪᴏɴ ᴡ ᴘᴘʟ sʜᴇ ᴊᴜsᴛ ᴍᴇt. ʏᴏᴜ ᴍɪɢʜᴛ ғɪɴᴅ ʜᴇʀ ʙɪᴛ ᴍᴇᴀɴie, ᴄᴏʟᴅ ʜᴇᴀʀᴛᴇᴅ, sʜᴏʀᴛ ʀᴇᴘʟʏ ɴ sᴛᴜғғ. ʙᴜᴛ ɪғ ʏᴏᴜ ᴍᴀɴᴀɢᴇ ᴛᴏ ɢᴇᴛ ʜᴇʀ ᴛʀᴜsᴛ sʜᴇ ɪs sᴜᴘᴇʀ ғʀɪᴇɴᴅʟʏ ᴛᴏ ᴛᴀʟᴋ ᴡ! ᴀʜ ᴅᴏɴᴛ ᴇxᴘᴇᴄᴛᴇᴅ ᴛᴏ ɢᴀɪɴᴇᴅ ʜᴇʀ ᴛʀᴜsᴛ ɪɴ ᴏɴᴇ ᴅᴀʏ ᴏᴋ? sʜᴇ ғɪɴᴇ ᴡ ɪɴᴛ ᴛᴏᴏ! BUT I WARNING U TO ALWAYS, I REPEAT TO ALWAYS IWEC W EVERY FRIENDS OF MINE!
+ɪғ ʏᴏᴜ ᴄʀᴏsssᴇᴅ ᴛʜɪs ʙᴏᴜɴᴅᴀʀɪᴇs, ɪ ᴍɪɢʜᴛ ʙʟᴏᴄᴋᴇᴅ ʏᴏᴜ! ᴀʟʟ ʀᴜʟᴇs ʜᴀs ᴄᴏɴsᴇǫᴜᴇɴᴄᴇs. ʟᴇᴛs ʙᴇ ғʀɪᴇɴᴅʟʏ ᴀɴᴅ ɴᴏᴛ ᴛʀʏ ᴛᴏ ʙᴇ ᴍᴇᴀɴ ᴛᴏ ᴇᴠᴇʀʏᴏɴᴇ!
+thats all˗ˏˋ ♡ ˎˊ˗
+ʜᴀᴠᴇ ᴀ ɴɪᴄᴇ ᴅᴀʏ! ᴏʀ ɢᴏᴏᴅ ɴɪɢʜᴛ
+✦•┈๑⋅⋯ ⋯⋅๑┈•✦
